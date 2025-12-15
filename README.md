@@ -11,6 +11,7 @@
 <img width="853" height="1280" alt="SEXUAL FANTASY" src="https://github.com/user-attachments/assets/0a1d8436-5367-4503-9d09-e5c98c8e0c9d" />
 <img width="853" height="1280" alt="SAD JOKESTER" src="https://github.com/user-attachments/assets/500bd38f-cb9b-4599-aead-8835cced0e18" />
 <img width="853" height="1280" alt="FOUNDER OF DEATH" src="https://github.com/user-attachments/assets/aea59f92-42c0-4cd2-9566-ec9e645cd6d1" />
-<img width="853" height="1280" alt="PARANOID" src="https://github.com/user-attachments/assets/9393658b-3c8f-482e-a253-68ebc69542ed" />
+<img width="853" height="1280" alt="PARANOID" src="https://github.com/user-attachments/assets/a0a786f1-9b28-4869-95ec-c8b25e6ebf66" />
+
 <img width="853" height="1280" alt="I SHOULD’VE WENT TO COLLEGE AND STUDIED COMPUTER SCIENCE BUT I WAS A HIPSTER AND A FUCK UP" src="https://github.com/user-attachments/assets/5485765f-271d-4ca6-bc4f-45837f24a3d9" />
 Gary Katiya is so fucking sexy
